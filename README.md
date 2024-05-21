@@ -1,1 +1,1 @@
-The growth of colonial economies in the Americas was driven by cash crops such as sugar, tobacco, cotton, and indigo, which were cultivated using slave labor on large plantations.
+The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
