@@ -1,1 +1,1 @@
-Tulip mania, a speculative bubble in the Netherlands during the 1630s, saw the prices of tulip bulbs soar to exorbitant levels before crashing, causing financial ruin for many investors.
+The growth of urbanization and the rise of cities in Europe during the 18th century created new opportunities for trade, commerce, and industry, fostering economic development and social change.
