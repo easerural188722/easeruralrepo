@@ -1,1 +1,1 @@
-The growth of urbanization and the rise of cities in Europe during the 18th century created new opportunities for trade, commerce, and industry, fostering economic development and social change.
+The cottage industry system, also known as the putting-out system, was prevalent in Europe during the 18th century, involving decentralized production by rural households for urban markets.
