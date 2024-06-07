@@ -1,1 +1,1 @@
-The expansion of international trade in the 19th century was facilitated by innovations in transportation, including steamships, railways, and canals, which reduced costs and increased efficiency.
+The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
