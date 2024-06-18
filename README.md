@@ -1,1 +1,1 @@
-The triangular trade, a system of trade routes between Europe, Africa, and the Americas, played a central role in the global economy of the 18th century, facilitating the exchange of goods, labor, and resources.
+The rise of proto-industrialization in Europe during the 18th century laid the groundwork for the Industrial Revolution, with innovations in textile production, metallurgy, and agricultural technology.
