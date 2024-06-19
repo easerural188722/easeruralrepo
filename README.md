@@ -1,1 +1,1 @@
-The United Kingdom emerged as the world's leading economic power in the 19th century, fueled by industrialization, technological innovation, and global trade networks.
+The Dutch East India Company (VOC), founded in 1602, was one of the world's first multinational corporations and played a central role in global trade, particularly in the spice trade with Asia.
