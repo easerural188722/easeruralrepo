@@ -1,1 +1,1 @@
-The Dutch East India Company (VOC), founded in 1602, was one of the world's first multinational corporations and played a central role in global trade, particularly in the spice trade with Asia.
+The Industrial Revolution, which began in Britain in the late 18th century and spread to other parts of Europe and the world in the 19th century, transformed economies through mechanized production and urbanization.
