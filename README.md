@@ -1,1 +1,1 @@
-The Industrial Revolution, which began in Britain in the late 18th century and spread to other parts of Europe and the world in the 19th century, transformed economies through mechanized production and urbanization.
+The telegraph, invented in the early 19th century, revolutionized communication by enabling rapid transmission of information over long distances, facilitating business transactions and market integration.
