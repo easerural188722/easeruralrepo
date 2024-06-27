@@ -1,1 +1,1 @@
-The telegraph, invented in the early 19th century, revolutionized communication by enabling rapid transmission of information over long distances, facilitating business transactions and market integration.
+The rise of joint-stock companies and stock exchanges in the 18th century facilitated investment in overseas ventures and helped finance colonial expansion and trade.
