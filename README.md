@@ -1,1 +1,1 @@
-The Navigation Acts in Britain during the 18th century aimed to restrict colonial trade and maximize profits for British merchants and shipowners, shaping the economic relationship between Britain and its colonies.
+The Enclosure Acts in Britain during the 18th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
