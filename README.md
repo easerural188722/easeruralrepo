@@ -1,1 +1,1 @@
-The Enclosure Acts in Britain during the 18th century led to the privatization of common lands, forcing many peasants off the land and into wage labor in burgeoning industries.
+The Great Depression of the late 19th century, triggered by financial panics and economic downturns, led to widespread unemployment, business failures, and social unrest in many countries.
