@@ -1,1 +1,1 @@
-The Great Depression of the late 19th century, triggered by financial panics and economic downturns, led to widespread unemployment, business failures, and social unrest in many countries.
+The Dutch Republic emerged as a dominant economic power in the 17th century, with Amsterdam becoming a leading financial center and hub for international trade.
