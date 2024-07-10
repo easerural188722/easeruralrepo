@@ -1,1 +1,1 @@
-The Dutch Republic emerged as a dominant economic power in the 17th century, with Amsterdam becoming a leading financial center and hub for international trade.
+The Treaty of Utrecht, signed in 1713, marked the end of the War of Spanish Succession and reshaped the global balance of power, leading to territorial realignments and trade agreements.
