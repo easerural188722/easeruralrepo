@@ -1,1 +1,1 @@
-The Navigation Acts in Britain during the 18th century aimed to restrict colonial trade and maximize profits for British merchants and shipowners, shaping the economic relationship between Britain and its colonies.
+The rise of capitalism in the 17th century was accompanied by the emergence of modern banking practices, including the issuance of paper money, letters of credit, and banking services.
