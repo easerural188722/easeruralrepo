@@ -1,1 +1,1 @@
-The spread of capitalism in the 19th century was accompanied by social upheaval, including labor strikes, protests, and the rise of socialist and labor movements advocating for workers' rights and social reforms.
+The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
