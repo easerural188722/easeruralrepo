@@ -1,1 +1,1 @@
-The Atlantic slave trade flourished in the 17th century, with millions of Africans forcibly transported to the Americas to work on plantations, mines, and other labor-intensive industries.
+Tulip mania, a speculative bubble in the Netherlands during the 1630s, saw the prices of tulip bulbs soar to exorbitant levels before crashing, causing financial ruin for many investors.
