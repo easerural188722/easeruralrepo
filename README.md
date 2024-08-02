@@ -1,1 +1,1 @@
-The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
+The Treaty of Westphalia, signed in 1648, marked the end of the Thirty Years' War in Europe and established the principle of state sovereignty, laying the groundwork for modern international relations.
